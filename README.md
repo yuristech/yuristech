@@ -23,7 +23,7 @@
 
 ## Sobre mim
 
-- Um jovem apaixonado por tecnologia, cursando Sistemas de Informação e estagiando na área de TI 💻 🚀</br>
+- Um jovem apaixonado por tecnologia, estagiando na área de TI 💻 🚀</br>
 - Estou cursando Sistemas da Informação 3/8👨🏻‍💻</br>
 
 - Conecte-se comigo</br>
