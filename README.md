@@ -23,7 +23,7 @@
 
 ## Sobre mim
 
-- Um jovem apaixonado por tecnologia, Atualemente trabalha como Aprendiz de Tecnologia da Informação no Sicoob Coopemata 💻 🚀</br>
+- Um jovem apaixonado por tecnologia, cursando Sistemas de Informação e estagiando na área de TI 💻 🚀</br>
 - Estou cursando Sistemas da Informação 3/8👨🏻‍💻</br>
 
 - Conecte-se comigo</br>
